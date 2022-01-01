@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ItzRozco
+- 👀 I’m interested in Java, Python
+- 📫 You can reach me on Discord! ItzRozco#7435
