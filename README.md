@@ -1,3 +1,4 @@
-- 👋 Hi, I’m @ItzRozco
-- 👀 I’m interested in Java, Python
-- 📫 You can reach me on Discord! ItzRozco#7435
+- 👀 I’m interested in your mom
+- 🌱 I’m currently learning your mom's genitals
+- 💞️ I’m looking to collaborate with your mom
+- 📫 How to reach me? in your mom's bed
